@@ -1,4 +1,4 @@
-# Portfolio de Bah Mamadou 💻🔒
+# Portfolio de Diallo Sidy💻🔒
 
 ## Présentation 🌟
 
